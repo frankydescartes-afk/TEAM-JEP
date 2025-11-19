@@ -1,4 +1,4 @@
-# -jep2025
+# TEAM-JEP2025
 
 | Name            | GitHub Username | Personal Branch       | Recipes |
 |-----------------|-----------------|-----------------------|---------|
