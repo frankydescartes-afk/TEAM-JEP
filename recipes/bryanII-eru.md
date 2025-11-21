@@ -1,0 +1,16 @@
+L'Eru est un plat traditionnel camerounais emblématique, originaire de la région du Sud-Ouest, et plus spécifiquement de l'ethnie Bayangi. C'est un ragoût ou une soupe de légumes savoureuse, riche en protéines et en arômes, qui jouit d'une grande popularité à travers tout le pays. 
+Composition et Ingrédients Clés
+L'Eru est un mélange de plusieurs ingrédients qui lui confèrent sa texture unique et sa saveur distinctive : 
+Feuilles d'Eru : Ce sont des feuilles finement hachées de Gnetum africanum, une plante grimpante forestière (parfois appelées feuilles d'okok ou d'okazi dans d'autres régions). Elles sont l'ingrédient principal et doivent être bien lavées et cuites longtemps pour ramollir.
+Feuilles d'eau (Waterleaf) ou épinards : Les feuilles d'eru sont généralement mélangées avec des feuilles d'eau (Talinum triangulare) ou des épinards pour ajouter du volume et une texture fondante.
+Protéines : Le plat est souvent enrichi de viandes variées comme du bœuf, de la peau de bœuf (kanda), des tripes, ou encore du poisson fumé et des écrevisses séchées pour un goût umami prononcé.
+Huile de palme rouge : C'est l'huile de palme qui donne au plat sa couleur et sa richesse caractéristiques.
+Assaisonnements : Sel, piment (selon les goûts), et souvent des cubes de bouillon ou d'autres épices sont utilisés pour rehausser la saveur. 
+Préparation
+La préparation de l'Eru demande du temps, principalement pour la cuisson des feuilles et de la viande : 
+Les feuilles d'eru séchées sont généralement trempées ou bouillies avec une pincée de bicarbonate de soude (kanwa) pour les ramollir.
+La viande et la peau de bœuf sont bouillies séparément avec des assaisonnements jusqu'à ce qu'elles soient tendres.
+Les feuilles d'eau (ou épinards) sont ajoutées dans une grande marmite, puis les feuilles d'eru et les protéines cuites.
+L'huile de palme et les autres assaisonnements (écrevisses, piment) sont incorporés et le mélange est mijoté à feu doux pendant un certain temps, en remuant occasionnellement, jusqu'à ce que les saveurs se mélangent et que le plat atteigne une consistance épaisse et homogène. 
+Dégustation
+L'Eru se mange traditionnellement chaud, accompagné d'un féculent neutre pour équilibrer la richesse du plat. Les accompagnements les plus courants sont le water fufu (une pâte de manioc fermenté) ou le couscous de tapioca (semoule de manioc)
