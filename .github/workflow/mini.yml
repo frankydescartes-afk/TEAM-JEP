@@ -8,5 +8,6 @@ jobs:
       - name: Checkout code
         uses: actions/checkout@v4
       - name: Say Hello
-        run: 
-        [ -fREADME.md ] && [ -d recipes ]
+        run: echo "hello, world"
+        
+        
