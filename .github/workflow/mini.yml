@@ -1,4 +1,4 @@
-name: check requirement
+name: hello world
 on:
   - push
 jobs:
